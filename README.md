@@ -1,2 +1,2 @@
 # SQ42-Clone
-It's great
+Pls don't sue CIG. 
